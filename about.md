@@ -26,7 +26,7 @@ titles:
 key: page-about
 ---
 Hi!<br/>
-This is a personal blog for my personal writings, mostly collection of my Twitter thread and notes. I have used several blogging website but somehow I do't have a sense of ownership over my writings.<br/>
+This is a personal blog for my personal writings, mostly collection of my Twitter thread and notes. I have used several blogging website but somehow I don't have a sense of ownership over my writings.<br/>
 <br/>
 I understand that Github pages usually used as a professional portfolio pages. I may use that in the future, but for now I am enjoying learing how to configure my blog manually. It's tedious but it feels like I'm tending a garden, so the satisfaction is coming from the struggle when trying to understand how Github works and how this template works. <br/>
 <br/>
