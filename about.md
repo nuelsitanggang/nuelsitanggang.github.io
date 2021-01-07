@@ -25,9 +25,10 @@ titles:
   # @end locale config
 key: page-about
 ---
-This is a personal blog for my personal writings, mostly collection of my Twitter thread and notes. I understand that there are blogging service website, but somehow it lacks the sense of ownership. I don't know why, but it feels like that. <br/>
+Hi!<br/>
+This is a personal blog for my personal writings, mostly collection of my Twitter thread and notes. I have used several blogging website but somehow I do't have a sense of ownership over my writings.<br/>
 <br/>
-I also understand that Github pages usually used as a professional portfolio pages. I may use that in the future, but for now I am enjoying learing how to configure my blog manually. It's tedious but it feels like I'm building a garden, so the satisfaction is coming from the struggle when trying to understand how Github works and how this template works. <br/>
+I understand that Github pages usually used as a professional portfolio pages. I may use that in the future, but for now I am enjoying learing how to configure my blog manually. It's tedious but it feels like I'm tending a garden, so the satisfaction is coming from the struggle when trying to understand how Github works and how this template works. <br/>
 <br/>
 If you're a friend of mine from Twitter, welcome. Basically my talking point is more or less the same with my tweets but it will be more elaborated.<br/>
 Cheers!<br/>
