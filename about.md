@@ -32,7 +32,7 @@ article_header:
   background_color: '#203028'
   background_image:
     gradient: 'linear-gradient(135deg, rgba(34, 139, 87 , .4), rgba(139, 34, 139, .4))'
-    src: /docs/assets/Cover.jpg
+    src: /assets/Cover.jpg
 key: page-about
 ---
 Hi!<br/>
