@@ -1,5 +1,6 @@
 ---
 layout: article
+type: posts
 titles: Beliefs
 ---
 
