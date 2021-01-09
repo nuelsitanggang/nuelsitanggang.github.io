@@ -51,7 +51,7 @@ header:
     
       - titles:
       # @start locale config
-      en      : &EN       About2
+      en      : &EN       Manifesto
       en-GB   : *EN
       en-US   : *EN
       en-CA   : *EN
@@ -72,4 +72,4 @@ header:
       fr-FR   : *FR
       fr-LU   : *FR
       # @end locale config
-    url: /about2.html
+    url: /beliefs.html
