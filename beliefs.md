@@ -1,6 +1,7 @@
 ---
 layout: article
 titles: Beliefs
-key: page-beliefs
 ---
+#Testing
 
+This is a test
