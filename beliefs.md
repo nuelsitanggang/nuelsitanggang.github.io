@@ -3,6 +3,7 @@ layout: article
 titles: Beliefs
 ---
 
-#Testing#
+Testing
+------
 
 This is a test
