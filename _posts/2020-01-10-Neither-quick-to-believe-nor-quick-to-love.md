@@ -14,4 +14,4 @@ _Translated by Christoper Maurer_ <br/>
 _Translated by Jeremy Robbins (Penguin Books)_ <br/>
 **Don’t be too quick to believe or to bestow affection**. Maturity is revealed by a slowness to believe; lies are commonplace, so let belief be rare. Whoever is easily swayed is soon embarrassed by it. But don’t voice your doubts about a person’s truthfulness, this just adds insult to injury, because it treats them as either a deceiver or as someone deceived. And this isn’t the worst of it, since an unwillingness to believe others is a sign of being a liar, for a liar has a double misfortune, neither believing nor being believed. Sensible listeners suspend their judgement and should trust the author who says eagerness to bestow affection is a form of imprudence*. For you can lie not only with words, but with actions, and this second form of deceit is more pernicious because of its consequences.<br/>
 <br/>
-*eagerness to bestow affection is a form of imprudence: Cicero, On Friendship, XVII.63, XXII.85
+*_Eagerness to bestow affection is a form of imprudence: Cicero, On Friendship, XVII.63, XXII.85_
