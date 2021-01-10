@@ -1,6 +1,6 @@
 ---
 title: Neither quick to believe, nor quick to love
-tags: Art of prudence
+tags: Art-of-prudence
 ---
 
 The art of worldly wisdom #154
