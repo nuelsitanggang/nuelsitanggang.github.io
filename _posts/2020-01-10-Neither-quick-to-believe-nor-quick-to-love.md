@@ -10,7 +10,7 @@ _Translated by Christoper Maurer_ <br/>
 Neither quick to believe, nor quick to love. A ripe judgment is slow to believe. Lying is ordinary; let belief be extraordinary. The rush to judgment leads to embarrassment and exhaustion. But don’t cast doubt openly on the truthfulness of others. When you treat someone like a liar, or insist he has been deceived, you add insult to injury. There is an even greater disadvantage: not believing others implies that you yourself are deceitful. The liar suffers twice: he neither believes nor is believed. Prudent listeners suspend their judgment. Nor, an author tells us,* should we be quick to love. One lies with words, but also with things, and the latter sort of deceit results in more harm.<br/>
 <br/>
 
-The Pocket Oracle and Art of Prudence #154
+The pocket oracle and art of prudence #154
 ---
 
 _Translated by Jeremy Robbins (Penguin Books)_ <br/>
