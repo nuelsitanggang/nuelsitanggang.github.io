@@ -9,7 +9,7 @@ Sometimes I still get sad, but then I remember. My loss was her gain. My grief w
 
 I can't help but thinking about this every single day. There are times that my heart gets tender, then I remind myself that is useless and pointless. She's not going back and she's not thinking about me either. When I was grieving, she already found a new boyfriend in less than two weeks. She changes her heart so quick as if nothing happened before. One day she told me I was the love of her life and then suddenly I was an old acquintance from school.<br/>
 
-It's my fault anyway. It's my fault that I fell in love. It's my fault that I delude myself thinking that I'm special. Never was, never will. It's my fault that I trust her. I should have listened to her. It was all a lie. It was all a big lie. I was a rebound.<br/>
+It's my fault anyway. It's my fault that I fell in love. It's my fault that I delude myself thinking that I'm special. Never was, never will. It's my fault that I trust her. I should have listened to her. It was all a lie. It was all a big lie. I was only a rebound.<br/>
 
 I wish I could forget everything and I sincerely wish that I will never have to cross path again. I have no intention to forgive her. I will remember her last words, "I need to go, any closing statement?". My blood boils everytime I remember that.<br/>
 
