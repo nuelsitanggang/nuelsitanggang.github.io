@@ -3,9 +3,7 @@ The sadness has started to subside, but it left me with anger, hate, and humilia
 There are bad days, my moment of weakness.<br/>
 I'm exhausted. truly exhausted.<br/>
 
-Sometimes I still get sad, but then I remember that she doesn't want me anymore. She won't come back and she's not thinking of me either.<br/>
-
-_My grief of loss is her sigh of relief_<br/>
+Sometimes I still get sad, but then I remember that she doesn't want me anymore. She won't come back and she's not thinking of me either. My grief of loss is her sigh of relief. When I was alone grieving, she's already got a new one in less than two weeks. Two freaking weeks. Meanwhile, I don't know what it takes for me to overcome this, since this is not the first time she left me. Why oh why did I put my trust in her.<br/>
 
 It's never enough, I'm never enough. I gave all that I got. I shared everything I had. I loved her with all of my heart, but it's never enough. I gave her all of my trust 100%. I thought I could trust her. I guess I was wrong.<br/>
 
@@ -17,7 +15,7 @@ It's my fault anyway. It's my fault that I fell in love. It's my fault that I de
 
 I'm not a saint, I know I have flaws. I know I have my own problems to face and demons to fight with. I took responsibility of my suffering. What happened to me was caused of either ignorance, lack of knowledge, or lack of courage. It's my fault and I will learn. When the time comes, I will do 10x better.<br/>
 
-I wish her the best, I hope she's happy and found what she's looking for. However, I have no intention to forgive her. I won't forgive her for treating me like a disposable. One day she said she loved me until one day she told me she didn't feel anything anymore.<br/> 
+I wish her the best, I hope she's happy and found what she's looking for. However, I have no intention to forgive her. I won't forgive her for treating me like a disposable. One day she said she loved me until one day she told me she didn't feel anything anymore. She violated every promise that we set together. I should have seen this coming, when the spark has dimmed she will look for someone new.<br/> 
 
 I wish I could forget everything and sincerely wish that we will never have to cross paths again. I don't want to remember anything from her except the pain she caused. I don't want to talk about her, I don't want to try to know any information about her, I don't want any of my friends to speak of her name in my presence. I will forget but I won't forgive.<br/>
 
