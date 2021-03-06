@@ -5,7 +5,7 @@ I'm exhausted. truly exhausted.<br/>
 
 Sometimes I still get sad, but then I remember that she doesn't want me anymore. She won't come back and she's not thinking of me either.<br/>
 
-__My grief of loss is her sigh of relief__<br/>
+_My grief of loss is her sigh of relief_<br/>
 
 It's never enough, I'm never enough. I gave all that I got. I shared everything I had. I loved her with all of my heart, but it's never enough. I gave her all of my trust 100%. I thought I could trust her. I guess I was wrong.<br/>
 
