@@ -3,9 +3,7 @@ title: Rise again oh rise again
 tags: Song
 ---
 
-_Stan Rogers - The Mary Ellen Carter (click the image for the video)_<br/>
-[![Rise Again](http://img.youtube.com/vi/Fhop5VuLDIQ/0.jpg)](http://www.youtube.com/watch?v=Fhop5VuLDIQ)
-
+_Stan Rogers - The Mary Ellen Carter_<br/>
 <div>{%- include extensions/youtube.html id='Fhop5VuLDIQ' -%}</div>
 
 Last year was really tough for me. A lot of guilt, regret, anger and dissapointment that leads to multiple breakdowns. At one point I lost my purpose in life. It was a really lonely experience. Though my friends are around to accompany me, I know I have to overcome this alone.<br/>
