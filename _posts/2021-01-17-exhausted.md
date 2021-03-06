@@ -23,5 +23,5 @@ The wound is not healed, I'm in constant pain. The pain is still there, it's the
 
 If you're my friend reading this, maybe you'll say to me like come on, it's been months. Maybe you're right. Life goes on right? She's already moved to another phase of her life anyway, why should I stuck? Yeah, I will overcome, but not today. Today, let me clenched my fist, clutching to the ember of hatred and anger. I know I'll hurt myself, but I have prepared for that.<br/>
 
-I don't know if you can learn anything from my story, but I just want to remind you that **the chance of your loved ones turn their back and betray you is low but never zero**
+I don't know if you can learn anything from my story, but I just want to remind you that **the chance of your loved ones turn their back and betray you is low but never zero**.
 
