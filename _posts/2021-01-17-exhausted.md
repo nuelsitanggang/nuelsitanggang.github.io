@@ -15,7 +15,7 @@ My loss was her gain. My grief was her sigh of relief. If she doesn't have the f
 
 III
 ---
-I can't help but thinking about this every single day. There are times that my heart gets tender, then I remind myself that is useless and pointless. She's not going back and she's not thinking about me either. When I was grieving, she already found a new boyfriend in less than two weeks. She changes her heart so quick as if nothing happened before. One day she told me I was the love of her life and then suddenly I'm just an old acquaintance from school.<br/>
+I can't help but thinking about this every single day. There are times that my heart gets tender, then I remind myself that it is useless and pointless. She's not going back and she's not thinking about me either. When I was grieving, she already found a new boyfriend in less than two weeks. She changes her heart so quick as if nothing happened before. One day she told me I was the love of her life and then suddenly I'm just an old acquaintance from school.<br/>
 
 It's my fault anyway. It's my fault that I fell in love. It's my fault that I deluded myself into thinking that I'm special. Never was, never will. It's my fault that I trust her. I should not have listened to her. It was all a lie. It was all a big lie. I was only served as a rebound.<br/>
 
